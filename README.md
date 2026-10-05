@@ -10,7 +10,7 @@ Experience the soothing power of a relaxing oil massage.
 
 ⏱️ Duration: 60 mins of relaxation
 
-💰 Price: Exclusively ₹6,100 only
+💰 Price: Exclusively for ₹6,100 only
 
 
 Join the waitlist today!
